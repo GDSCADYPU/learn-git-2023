@@ -3,7 +3,7 @@
 
 ## Stream - 
 ## Why ADYPU - 
-## Year
+## Year -
 
 ## Socials
 * LinkedIn - 
